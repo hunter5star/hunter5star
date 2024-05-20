@@ -14,4 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-### my name is hunter antkowiak
+### my name is Hunter Antkowiak
+#### im currently in 9th grade going to school from 7:20- 2:16
++
