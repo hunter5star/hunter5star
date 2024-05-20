@@ -15,5 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ### my name is Hunter Antkowiak
-#### im currently in 9th grade going to school from 7:20- 2:16
-+
+I'm currently in 9th grade going to school from 7:20- 2:16
++after school activities 
+   cook at a resturant
+   workout
+   football most of summer and fall sometimes into november
+   
